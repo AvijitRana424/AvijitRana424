@@ -1,5 +1,5 @@
 # 💫 Hi all 👋 I'm Avijit:
-🔭 I’m Currently Preparing For Placements!.<br>🌱 I’m currently Exploring My Problem Solving Skill And Learn New technology.<br>🤣I’m currently learning everything!<br>💬 Ask me about Good First Issues & Exciting projects to work on.<br>📫 How to reach me: https://www.linkedin.com/in/avijit-rana-495654221/<br>😄 Pronouns: He/His<br> 🥅 2023 Goals: Contribute more to Open Source projects.
+🔭 🌱 I’m currently Exploring My Problem Solving Skill And Learn New technology.<br>🤣I’m currently learning everything!<br>💬 Ask me about Good First Issues & Exciting projects to work on.<br>📫 How to reach me: https://www.linkedin.com/in/avijit-rana-495654221/<br>😄 Pronouns: He/His<br> 🥅 2023 Goals: Contribute more to Open Source projects.
 
 
 ## 🌐 Socials:
